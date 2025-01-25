@@ -1,0 +1,1 @@
+To improve employees' creativity and productivity, organisations should ensure that they receive appropriate rewards and acknowledgment, as well as timely promotions. This will also assure their long-term employment with the organization.
